@@ -11,3 +11,5 @@ further will go to Game Dev / DataScience & AI / CyberSecurity
 
 ## WANT TO LEARN TOGETHER? follow me on twitch👇
 (https://www.twitch.tv/stan1slame)
+
+# cool
